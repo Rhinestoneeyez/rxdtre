@@ -1,5 +1,4 @@
-![IMG_20241116_031618](https://github.com/user-attachments/assets/09f372d1-9411-4fd2-8613-852815d8fcf6)
-![tumblr_1d2f9c389b46fe35f467795f350eb493_53647a75_1280](https://github.com/user-attachments/assets/dabad276-eccb-46ca-ae25-5f7a426a04a5)
+![IMG_20241116_031618](https://github.com/user-attachments/assets/09f372d1-9411-4fd2-8613-852815d8fcf6)![IMG_20241116_031705](https://github.com/user-attachments/assets/c71b0a6f-ff45-4456-9d92-c44619d7f007)
 
 
 ✶𝐍𝐨𝐰 𝐢𝐭'𝐬 𝐨𝐯𝐞𝐫, 𝐲𝐨𝐮'𝐯𝐞 𝐭𝐚𝐤𝐞𝐧 𝐲𝐨𝐮𝐫 𝐥𝐢𝐟𝐞
@@ -19,5 +18,5 @@
 𝐒𝐨 𝐠𝐨 𝐬𝐥𝐞𝐞𝐩 𝐟𝐨𝐫𝐞𝐯𝐞𝐫 𝐞𝐧𝐝 𝐭𝐨 𝐝𝐮𝐬𝐭.
 
 
-![tumblr_8a25aa392b791deec1872b5ef6ac62ec_7311d39d_1280](https://github.com/user-attachments/assets/332759d8-c3b9-49b4-be49-d226838419e8)
-![tumblr_78364e1f9516c3897351a45d649f6bd2_cc5dff7d_2048](https://github.com/user-attachments/assets/08acae6f-b75c-48bc-b751-f3b4d4ffc1ee)
+
+
